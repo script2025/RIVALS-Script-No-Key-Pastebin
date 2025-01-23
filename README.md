@@ -1,0 +1,1 @@
+# RIVALS-Script-No-Key-Pastebin
